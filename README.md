@@ -1,7 +1,8 @@
 ## 🥳👺🧙‍♀️
 
-![image](https://github.com/user-attachments/assets/f4e6349e-c804-4aae-a9ff-8b8ee7e1543e)
 
+
+![171450-3279280165](https://github.com/user-attachments/assets/9f4443c1-f7cc-489d-8702-2172d6c55ead)
 
 <!--
 **npJxx/npJxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
