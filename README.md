@@ -1,4 +1,7 @@
-## Hi there 👋
+## 🥳👺🧙‍♀️
+
+![image](https://github.com/user-attachments/assets/f4e6349e-c804-4aae-a9ff-8b8ee7e1543e)
+
 
 <!--
 **npJxx/npJxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
